@@ -14,7 +14,9 @@ Fit the surround rubber to the body aperture and lubricate the ‘glass’ chann
 
 ![Service tool 18G 468](images/436AC63D-42DD-454F-8689-4ED207D6DE8E.jpeg)
 
-Apply a soap-and-water solution to the locking filler strip channel to assist in fitting the strip.
+Alternatively you can install the surround rubber around the glass first then add a cord to the surround rubber overlapping at the bottom middle of the windshield. With two people on the outside place the windshield in the body aperture. Have a person on the inside pull up on the cord towards the middle of the windshield which places the lip of the surround rubber over the body aperture while the two on the outside gently push on the windshield with their palms. Continue pulling on the cord until you get around the windshield surround rubber.
+
+Apply a soap-and-water solution to the locking filler strip channel to assist in fitting the strip. 
 
 Using Service tool 18G 468 with adaptor 18G 468 A, thread the end of the filler strip through the eye of the adaptor and under the roller. Lay the filler strip in position over the groove in the surround rubber. Insert the eye of the tool in the filler strip groove, hold the filler strip in position, and commence to push the tool along the groove, rolling the strip into position. A slight side-to-side action will assist when rounding the corners.
 
